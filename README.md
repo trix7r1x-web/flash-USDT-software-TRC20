@@ -20,7 +20,7 @@ We have no interest in your history or issues—this is a straightforward and pr
 If you cannot meet our escrow requirement or intend to transfer aggression, please walk away.
 We prioritize working with clients who value transparency and fairness.
 Getting Started
-🌐 Official Tools & Resources
-🔗https://www.cryptoflash2.com/
-🔗 https://www.cryptoflash2.com/2021/04/10/fake-usdt-sender/
-🔗 https://www.cryptoflash2.com/2021/04/10/fake-usdt-sender/
+# 🌐 Official Tools & Resources
+* 🔗https://www.cryptoflash2.com/
+* 🔗 https://www.cryptoflash2.com/2021/04/10/fake-usdt-sender/
+* 🔗 https://www.cryptoflash2.com/2021/04/10/fake-usdt-sender/
